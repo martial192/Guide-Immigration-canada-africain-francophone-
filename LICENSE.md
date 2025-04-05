@@ -1,27 +1,23 @@
-# Guide d’Immigration – [Le guide ultime pour immigrer au canada]
+# Licence d’Utilisation – Guide d’Immigration
 
-Bienvenue sur la page de vente officielle du guide d’immigration. Ce document a pour but de vous accompagner pas à pas dans vos démarches pour une immigration réussie, en vous fournissant des conseils pratiques, des étapes détaillées et des ressources utiles.
+En acquérant le guide d’immigration [Guide ultime pour immigrer au canada], vous bénéficiez d’une licence non exclusive, non transférable et limitée à un usage strictement personnel.
 
-## Contenu du Guide
+## Droits Accordés
 
-- **Introduction & Contexte :** Comprendre les enjeux et les raisons motivant votre projet d’immigration.
-- **Démarches Administratives :** Un guide complet pour préparer et constituer votre dossier.
-- **Conseils et Astuces :** Des recommandations pour éviter les erreurs courantes et optimiser vos chances.
-- **Témoignages et Études de Cas :** Des exemples concrets pour vous inspirer et vous rassurer.
-- **Ressources Complémentaires :** Liens et contacts pour approfondir vos recherches.
+- Vous êtes autorisé(e) à consulter et imprimer le guide pour votre usage personnel.
+- Vous pouvez utiliser le contenu à titre informatif afin de faciliter vos démarches d’immigration.
 
-## Pourquoi Choisir Ce Guide ?
+## Restrictions
 
-- **Informations Actualisées :** Le guide est régulièrement mis à jour pour refléter les dernières réglementations.
-- **Simplicité et Clarté :** Un langage accessible pour que chacun puisse comprendre et appliquer les conseils.
-- **Accompagnement Personnalisé :** Une assistance disponible pour répondre à vos questions et vous orienter dans vos démarches.
+- Toute reproduction totale ou partielle, redistribution, modification ou exploitation commerciale du guide est strictement interdite sans l’accord préalable et écrit de [Cap vers le canada].
+- Les éléments graphiques, textuels et la mise en page du guide demeurent la propriété exclusive de [Cap vers le canada].
 
-## Mode d’Utilisation
+## Engagement de l’Utilisateur
 
-1. **Accès Immédiat :** Téléchargez le guide dès confirmation de votre achat.
-2. **Consultation et Application :** Suivez les étapes présentées et adaptez-les à votre situation personnelle.
-3. **Support :** Pour toute question, contactez-nous via [assistance.guide.canada@gmail.com] ou le formulaire de contact sur le site.
+En achetant ce guide, vous vous engagez à respecter les termes de cette licence et à ne pas utiliser le contenu à des fins autres que personnelles et informatives. Pour toute demande d’autorisation d’utilisation commerciale ou de redistribution, veuillez contacter [assistance.guide.canada@gmail.com].
 
-## Mentions Légales
+## Clause de Non-Responsabilité
 
-Les informations contenues dans ce guide sont fournies à titre indicatif. Nous recommandons de vérifier auprès des autorités compétentes pour toute démarche officielle.
+Le contenu du guide est fourni à titre informatif. Bien que nous fassions tout notre possible pour assurer l’exactitude des informations, nous ne pouvons garantir l’exhaustivité ou l’actualité de celles-ci. Il est recommandé de vérifier auprès des autorités compétentes pour toute démarche officielle.
+
+*Dernière mise à jour : [Avril 2025].*
